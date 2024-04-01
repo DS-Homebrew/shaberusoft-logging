@@ -38,3 +38,12 @@ As a long anticipated sequel to Sonic 06, Sonic Boom fell kind of flat. Rather t
 
 ### Scream VI
 Scream VI is an American slasher film directed by Matt Bettinelli-Olpin and Tyler Gillett, and written by James Vanderbilt and Guy Busick. It is the sequel to Scream and the sixth installment in the Scream film series. The film stars Melissa Barrera, Mason Gooding, Roger L. Jackson, Jenna Ortega, Jasmin Savoy Brown, Hayden Panettiere and Courteney Cox, all reprising their roles from previous installments, with Jack Champion, Henry Czerny, Liana Liberato, Dermot Mulroney, Devyn Nekoda, Tony Revolori, Josh Segarra and Samara Weaving joining the ensemble cast. The plot follows a new Ghostface killer, who begins targeting the survivors of the Woodsboro murders in New York City.
+
+### UNE
+ShaberuSoft puts a twist on your favourite card game! This game was originally meant to come with every single DS family system unit but was forgotten to be installed on the oldest DS known to man. This recreation shows what everyone was supposed to be able to play on their own DS with friends, family, and even with just "Une" player!
+
+### Susi and the Endless Goo
+Susi and the Endless Goo is a platformer, rpg and puzzle game where you have to help Susi, the Zebra finch to get out of the goo. Jump and fly from platform to platform, looking out for enemies surrounding the goo and solve puzzles to get utilities that will assist in your quest. You can also meet other Zebra finches that were caught with you; perhaps they can assist?
+
+### Gilbert Wong - Copyright Attorney
+With the success of ShaberuSoft's Breaking Bad Wii, amc one again gives the licence to the critically acclaimed tv series to these developers. In this game you play as the legendary Saul Goodman on his way to become a lawyer. Collect clues and listen to witnesses' testimonies to find out who the true Sussy Baka is! This chicanery-filled sequel will have you at the edge of your seat. Bravo, Vince!
